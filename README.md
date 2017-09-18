@@ -4,7 +4,7 @@ Olá amigo,
 
 Aqui estão alguns dos materiais utilizados nas apresentações do professor Diogo Cezar Teixeira Batista.
 
-Os links são para as apresentaçòes do Google Docs.
+Os links são para as apresentações do Google Docs.
 
 Está tudo aqui nesta tabela.
 
